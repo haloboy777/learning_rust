@@ -1,1 +1,0 @@
-I don't even want to own this. I bear no reponsibility for the use of code from here.
